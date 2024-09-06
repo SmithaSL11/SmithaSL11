@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning
 - 🌱 I’m currently learning lots of cool stuff
 - 💞️ I’m looking to collaborate on learning
-- 📫 text me 925-818-5647
+- 📫 text me 925-818-56**
 - 😄 Pronouns: Undetermined
 - ⚡ Fun fact: I may be fun depending on weather
 
